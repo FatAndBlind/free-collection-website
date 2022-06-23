@@ -15,6 +15,8 @@ https://www.jk230.com [jk制服网](https://www.jk230.com)
 
 https://hxbaihe.cn [华夏分类目录](https://hxbaihe.cn)  
 
+https://www.flml.net [分类目录网](https://www.flml.net)  
+
 免费收录各行业优秀网站，让你的网站快速得到百度、搜狗、360等搜索引擎的收录，同时增加优质外链，提升网站排名。
 
 #### 分类目录提交说明
