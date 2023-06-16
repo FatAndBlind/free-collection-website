@@ -1,6 +1,8 @@
 # 免费收录网站
 
 #### 介绍
+https://www.mianshi8.net [面试吧](https://www.mianshi8.net)    
+
 https://www.hxbaihe.cn [华夏分类目录网](https://www.hxbaihe.cn)    
 
 https://www.shoulu8.net [收录吧](https://www.shoulu8.net)  
