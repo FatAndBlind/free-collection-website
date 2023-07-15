@@ -13,7 +13,7 @@ https://www.loveyou520.net [撩妹网](https://www.loveyou520.net)
 
 https://www.wzsl8.com [网站收录吧](https://www.wzsl8.com)  
 
-https://www.jk230.com [jk制服网](https://www.jk230.com)  
+https://www.cainiaoplus.com.com [jk制服网](https://www.cainiaoplus.com)  
 
 https://hxbaihe.cn [华夏分类目录](https://hxbaihe.cn)  
 
