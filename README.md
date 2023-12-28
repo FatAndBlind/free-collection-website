@@ -3,7 +3,7 @@
 #### 介绍
 https://www.mianshi8.net [面试吧](https://www.mianshi8.net)    
 
-https://www.hxbaihe.cn [华夏分类目录网](https://www.hxbaihe.cn)    
+https://www.cainiaoplay.com [菜鸟教程](https://www.cainiaoplay.com)    
 
 https://www.shoulu8.net [收录吧](https://www.shoulu8.net)  
 
@@ -15,7 +15,7 @@ https://www.wzsl8.com [网站收录吧](https://www.wzsl8.com)
 
 https://www.cainiaoplus.com.com [菜鸟教程](https://www.cainiaoplus.com)  
 
-https://hxbaihe.cn [华夏分类目录](https://hxbaihe.cn)  
+https://www.cainiaopro.com [菜鸟教程](https://www.cainiaopro.com)  
 
 https://www.flml.net [分类目录网](https://www.flml.net)  
 
