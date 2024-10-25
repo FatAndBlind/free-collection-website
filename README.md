@@ -1,6 +1,10 @@
 # 免费收录网站
 
 #### 介绍
+https://www.gushici365.com [古诗词网](https://www.gushici365.com)    
+
+https://www.shicidh.com [中国诗词大会](https://www.shicidh.com)    
+
 https://www.mianshi8.net [面试吧](https://www.mianshi8.net)    
 
 https://www.cainiaoplay.com [菜鸟教程](https://www.cainiaoplay.com)    
